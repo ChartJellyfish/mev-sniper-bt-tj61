@@ -1,4 +1,4 @@
-# 
+# exclusive bot sniper MEV executor é o melhor bot sniper MEV executor com transações proxy e varredura de meme coins. Seguro, confiável e otimizado para estratégias MEV, sniper e
 
 
 
